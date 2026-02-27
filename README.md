@@ -1,2 +1,0 @@
-# Aoakenend
-For mod
